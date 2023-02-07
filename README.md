@@ -11,4 +11,4 @@ Edits by Abhi Vachani:
 Cool Article! It's important to note that ChatGPT can be used in a very useful way and I think that should be encouraged in schools/work settings. I like the suggestions you have mentioned on how to use ChatGPT to write better essays rather than just having the bot write them for you.  
 
 Edits by Chloe Hawkins: 
-I've been a bit confused about how to best use ChatGPT - this article was very informative! Thanks for sharing :) 
+I've been a bit confused about how to best use ChatGPT - this article was very informative!! Thanks for sharing :)  
